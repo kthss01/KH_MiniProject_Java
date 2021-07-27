@@ -9,5 +9,5 @@ https://prezi.com/view/8scOgxwEXSMzM5mjxR5U
 최종 시연 영상 
 https://drive.google.com/file/d/1_rmCReVz6Lho-C8xKXkPe8IBIHf0lbQw/view?usp=drivesdk
 
-개인 부분 유튜브 영상
+개인 부분 (Crew Part) 유튜브 영상
 https://studio.youtube.com/video/NJAhhRv1l7k/edit
