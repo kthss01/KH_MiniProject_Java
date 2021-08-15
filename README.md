@@ -1,5 +1,7 @@
 KH 강남 정보교육원 수업에서 진행한 미니 팀프로젝트
 
+운동기록 앱 만들기
+
 UI 설계서 (카카오 오븐) - 팀원 최선호님이 총괄
 https://ovenapp.io/view/G4sCNjCgFZztRfxpp5EmpjCxYc0SWNFQ/
 
