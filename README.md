@@ -12,4 +12,4 @@ https://prezi.com/view/8scOgxwEXSMzM5mjxR5U
 https://drive.google.com/file/d/1_rmCReVz6Lho-C8xKXkPe8IBIHf0lbQw/view?usp=drivesdk
 
 개인 부분 (Crew Part) 유튜브 영상
-https://studio.youtube.com/video/NJAhhRv1l7k/edit
+https://youtu.be/NJAhhRv1l7k
